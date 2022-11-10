@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @bloahwoahfelipe
 -  meu  anime favorito é  overflow
 - meu  ytbr fav eh o bluezao
-- sou lgbt (LeGoBaTman)
+- sou 
