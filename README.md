@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @bloahwoahfelipe
--  meu  anime favorito é  overflow
-- meu  ytbr fav eh o bluezao
-- sou 
+- Meu  anime favorito é Itadaki, Seieki
+- YT: Manual do Imundo
