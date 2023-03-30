@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @bloahwoahfelipe
-- Meu  anime favorito é Itadaki, Seieki
-- YT: Manual do Imundo
+- Meu  anime favorito é Itadaki, Seieki 😋
+- YT: Manual do Imundo 🥸
