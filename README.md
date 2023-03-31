@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @bloahwoahfelipe
 - Meu  anime favorito é Itadaki, Seieki 😋
 - YT: Manual do Imundo 🥸
+- Minha série animada favorita é Velma (HBO)
