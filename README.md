@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bloahwoahfelipe
-- Meu  anime favorito é Itadaki, Seieki 😋
-- YT: Mateus505
-- Minha série animada favorita é Velma (HBO)
+- 👋 Hi, I’m @FelipeAlbertiOfLuz
+- Meu  anime favorito é JoJo 
+- YT: Haku so2
+- Minha série animada favorita é Tufos
